@@ -1,2 +1,1 @@
-# btocc25.github.io
-Custom Blog
+Hi Stranger!😀
